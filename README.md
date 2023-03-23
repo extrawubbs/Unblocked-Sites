@@ -531,6 +531,17 @@ https://sus-amogus.onrender.com/play
 
 https://trickjoker-is-cool.onrender.com/play
 
+https://your-mom-postalservice.onrender.com/play.html
+
+https://choilieng.com/
+
+https://nabilubg.github.io/pages/games.html
+
+https://nabilmirror1.netlify.app/pages/games.html
+
+https://nabilv5.netlify.app/pages/games.html
+
+https://nabilmirror2.netlify.app/pages/games.html
 
 
 
